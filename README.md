@@ -1,5 +1,7 @@
 ### Hello There! 👋 
 
+You can call me Aika or Meuti or Mei!  
+
 Game Dev Enthusiast. 
 
 ### ⚙️ &nbsp;GitHub Analytics
