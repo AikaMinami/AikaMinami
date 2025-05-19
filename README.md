@@ -1,6 +1,9 @@
 ### Hello There! 👋 
 
-You can call me Aika or Meuti or Mei!  
+I got several nicknames but you can go with:
+- Aika
+- Mei
+- Asta
 
 Game Dev Enthusiast. 
 
